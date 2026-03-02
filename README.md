@@ -1,0 +1,2 @@
+# I-want-to-study-easy
+単語を覚えたい
