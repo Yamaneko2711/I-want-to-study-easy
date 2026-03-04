@@ -1,2 +1,2 @@
 # I-want-to-study-easy
-単語を覚えたい
+単語を覚えたいなぁ。
